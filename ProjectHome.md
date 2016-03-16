@@ -1,0 +1,2 @@
+online SlamBook is project of type frined community which helpful for those people or frined who will store the all biodata or information of dearst one.
+It gives the facility to those who will store the contact number and all other information of his friend
